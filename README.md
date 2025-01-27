@@ -4,7 +4,7 @@
 **Name** - Sihoo Park (sourceds) <br>
 **Pronouns** - He/Him <br>
 **Age** - 21 <br>
-**Current Location** - Busan, South Korea <br>
+**Current Location** - Busan, South Korea <sup><sub>I actually live in Gyeonggi-do, South Korea but I'm in busan due to fun and epic military service reasons</sub></sup><br>
 **Hobbies** - literally anything but coding *dear god why did i choose this major* <br>
 
 **Things I'm Good At** <br>
