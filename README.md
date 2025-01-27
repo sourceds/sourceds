@@ -40,6 +40,7 @@ Discord - srcds (i think?) <br>
 
 Feel free to contact me anytime! <br>*please contact me i need friends to prop up my crumbling social life*
 
+<sub> also if you're reading this and you're a member of our school please join the school computer club (SGCC) and the school comics club (sgcomics) thanks byeeeeeeeeeee
 <!--
 **sourceds/sourceds** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
