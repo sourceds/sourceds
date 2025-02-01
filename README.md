@@ -4,11 +4,12 @@
 **Name** - Sihoo Park (sourceds) <br>
 **Pronouns** - He/Him <br>
 **Age** - 21 <br>
-**Current Location** - Busan, South Korea <sub><sup>I actually live in Gyeonggi-do, South Korea but I'm in busan due to fun and epic military service reasons</sup></sub><br>
-**Hobbies** - literally anything but coding *dear god why did i choose this major* <br>
+**Current Location** - Busan, South Korea <sub><sup>Gimhae Air Base</sup></sub><br>
+**Hobbies** - literally anything but coding *why did i choose this major* <br>
 
 **Things I'm Good At** <br>
-- watching anime
+- goofing around
+- going to arcades
 - lying in bed for multiple hours
 - doing literally anything except studying
 
@@ -19,9 +20,9 @@
 - Having a social life
 
 **Things I Want to Do** <br>
-- discharge from the military <sub><sup>only 1 year and 2 months left... woohoo...</sup></sub>
+- discharge from the military <sub><sup>only 1 year and 2 months left! woohoo!.</sup></sub>
 - make cool suff
-- study social sciences and english literature, for some reason
+- read about incredibly obscure subjects that have no relation to my major
 
 **Current Association** <br>
 - Republic of Korea Air Force, 5th Air Mobility Wing
@@ -43,9 +44,9 @@
 **Twitter(X)** - @sourceds128 <br>
 Discord - srcds (i think?) <br>
 
-Feel free to contact me anytime! <br>*please contact me i need friends to prop up my crumbling social life*
+Feel free to contact me anytime! <br>*i desperatly need friends to prop up my crumbling social life*
 
-<sub> also if you're reading this and you're a member of our school please join the school computer club (SGCC) and the school comics club (sgcomics) thanks byeeeeeeeeeee
+<sub> also if you're reading this and you're a member of our school please join the school computer club (SGCC) and the school comics club (sgcomics)! </sub>
 <!--
 **sourceds/sourceds** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
