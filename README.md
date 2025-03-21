@@ -5,7 +5,6 @@
 **Pronouns** - He/Him <br>
 **Age** - 21 <br>
 **Current Location** - Busan, South Korea
-**Hobbies** - literally anything but coding *why did i choose this major* <br>
 
 **Things I'm Good At** <br>
 - goofing around
