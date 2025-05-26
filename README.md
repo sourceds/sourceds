@@ -1,4 +1,4 @@
-# hello there
+# github.com/sourceds
 
 ### About Me
 **Name** - Sihoo Park (sourceds) <br>
@@ -6,30 +6,10 @@
 **Age** - 21 <br>
 **Current Location** - Busan, South Korea
 
-**Things I'm Good At** <br>
-- goofing around
-- going to arcades
-- lying in bed for multiple hours
-- doing literally anything except studying
-
-**Things I'm Bad At** <br>
-- Coding
-- Going Outside / Touching Grass
-
-**Things I Want to Do** <br>
-- make cool suff
-- know about cool stuff
 
 **Current Association** <br>
 - Republic of Korea Air Force
 - Undergraduate Student (Sophmore) @ Sogang University
-
-
-<br>
-
-### My Works / Experience
-
-- lol, lmao even
 
 
 <br>
